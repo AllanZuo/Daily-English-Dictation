@@ -1,3 +1,2 @@
-# Daily-English-Dictation
-Daily English Dictation（Coach Shane）
+
 Mother Teresa,who received a Nobel peace Prize for her work on bhalf of the poor,dies in Calcutta-She was 87 years old.
